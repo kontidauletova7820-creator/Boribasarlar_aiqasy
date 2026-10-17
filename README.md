@@ -1,1 +1,1 @@
-# Boribasarlar_aiqasy
+# Boribasarl
